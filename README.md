@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @visaomultiforme
 - 👀 I’m interested in Novas amizades
 - 🌱 I’m currently learning marketing digital
-- 💞️ I’m looking to collaborate on cursos ou oportunidade de empresgos.
+- 💞️ I’m looking to collaborate on cursos ou oportunidade de empregos.
 - 📫 How to reach me (55)+11947812974
 
 <!---
